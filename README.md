@@ -1,0 +1,2 @@
+# Nooper.Shop
+GOD IN HIS HEAVEN, ALL RIGHTS WITH THE WORLD, -)-
